@@ -5,5 +5,6 @@ cansaço ou estresse pela manhã. Foi-me dito que não houve problemas no meu ú
 incomodar com inimigos, como ganhar e perder, isso me faria perder o sono à noite. É assim que eu lido com a sociedade e sei que é isso que me traz felicidade. Embora, se eu fosse lutar, não perderia para 
 ninguém.
 
+![](https://media.tenor.com/HtctYW2cpVoAAAAS/jojo-jjba.gif)
 
-![](https://tenor.com/pt-BR/view/jjba-jojo-jojos-bizarre-adventure-bizzarecord-gif-24814876)
+![](https://media.tenor.com/UbPoIZecNhMAAAAi/jjba-jojo.gif)
